@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ClairelibamCM
-- 👀 I’m interested in web3.0
-- 🌱 I’m currently learning Html coding
+- 👀 I am SEO Web-Writer and i am interested in web3.0
+- 🌱 I’m currently learning Html coding too
 - 💞️ I’m looking to collaborate on web3
 - 📫 How to reach me cvlibam@gmail.com
 
